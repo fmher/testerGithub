@@ -1,11 +1,2 @@
 # tester
-asdfasgasg
-sadbs
-dfhbnsdfb
-sdn
-sdn
-sdn
-sd
-n
-dsn
-dsfn
+nothing of importance
